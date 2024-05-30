@@ -1,3 +1,5 @@
-# GitHub Teacher
 
-nicotin k chertu alcohol k chertu
+# References
+
+* octocat 1 😈
+
